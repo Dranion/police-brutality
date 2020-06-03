@@ -52,5 +52,6 @@ Officer pins protestor with his knee on his neck. His partner intervenes and mov
 * 2020OPA-0326 - May 30 - "Pepper spraying peaceful protesters"
 * 2020OPA-0328 - May 30 - "The use of flashbangs, including causing a significant thumb injury"
 * 2020OPA-0332 - June 1 - "A confrontation between an officer and a male"
+* 2020OPA-0335 - June 1 - "Homeless man hit by an SPD flashbang while sleeping" 
 
 [Source - Twitter @SeattleOPA](https://twitter.com/SeattleOPA)
